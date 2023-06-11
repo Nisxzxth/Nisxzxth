@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **BE Mechanical**
 
-- 👨‍💻 All of my projects are available at [nisxzxth.github.io](nisxzxth.github.io)
+- 👨‍💻 My portfolio is here  [nisxzxth.github.io](nisxzxth.github.io)
 
 - 📫 How to reach me **nisxzxth@gmail.com**
 
