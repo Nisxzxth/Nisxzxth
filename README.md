@@ -9,9 +9,6 @@
 
 - 📫 How to reach me **nisxzxth@gmail.com**
 
--  Get me on linkedin <a href="www.linkedin.com/in/nishanthanu">nishanthanu</a>
-
--  Get me on Instagram <a href="www.instagram.com/nisxzxth">nisxzxth</a>
 
 
 
